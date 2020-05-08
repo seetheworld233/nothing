@@ -1,2 +1,6 @@
 # nothing
 nothing
+йцукенгшщзхъфывапролджэячсмитьбю.
+qwertzuiopüasdfghjklöäyxcvbnm
+qwertyuiopasdfghjklzxcvbnm
+qwertyuiopasdfghjklzxcvbnm
